@@ -350,3 +350,13 @@ courtesy of casazetajones via Instagram
 ウィンスレットは長いキャリアの中でも同作での演技が「史上最高」だと評価されているが、今後、中年女性がメインの奥深いストーリーが増えていけば、
 
 同じようにキャリア史上最高の演技をみせる40歳以上の女優が増えていくのではないかと予想されている。
+
+### 6.0魔性の女
+
+[男性を虜にする「魔性の女」とは？男がハマる特徴と天性の魅力](https://trilltrill.jp/articles/2400230)
+
+### 7.0梨花&更年期
+
+[更年期についてつづり、反響を呼んでいる。](https://news.yahoo.co.jp/articles/7c7a6be712aa6b97b8fea71721e5aceccd9382f6)
+
+[更年期障害](https://search.yahoo.co.jp/search?ei=UTF-8&rkf=1&slfr=1&qrw=0&p=%E6%9B%B4%E5%B9%B4%E6%9C%9F%E9%9A%9C%E5%AE%B3&fr=link_kw_nws_direct)
