@@ -363,3 +363,7 @@ courtesy of casazetajones via Instagram
 [“世界一若く見える”イケメン男性が話題！「５６歳なんてありえない」超マッチョな自撮りが海外でも大反響](https://news.yahoo.co.jp/articles/ea057e47c9c49a8e17cefea02364a41964c9778b).
 
 [“世界一若く見える”５６歳のイケメン男性が話題！スーツ姿や超マッチョな自撮りが海外でも大反響](https://news.yahoo.co.jp/articles/02fe33323c751ce1da7454ec1fd5fa1912d120e4).
+
+### 9.0Lola Pearce
+
+[Brain Tumour Research charity says EastEnders Lola story is important](https://news.yahoo.com/brain-tumour-research-charity-says-061258368.html?fr=sychp_catchall)(BBC News).
