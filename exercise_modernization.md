@@ -115,3 +115,28 @@ I just use `Japanese`, `French`, `Swedish`, `Arabic`, `Persian`, `Hebrew`,
     תרגיל חימום לפני שיעור חינוך גופני
     शारीरिक शिक्षा कक्षा से पहले वार्म-अप व्यायाम
     શારીરિક શિક્ષણ વર્ગ પહેલાં વોર્મ-અપ કસરત
+
+## 2Others
+
+Also, the same language!
+
+### 2.1Ask for help
+
+Hello! Sorry to bother you! I need your help, thanks!
+
+こんにちは！ お邪魔して申し訳ありません！ あなたの助けが必要です、ありがとう！
+
+    Kon'nichiwa! O jama shite mōshiwakearimasen! Anata no tasuke ga hitsuyōdesu, arigatō!
+Bonjour! Désolé de vous déranger! J'ai besoin de votre aide, merci !
+
+Hallå! Ledsen att jag stör dig! Jag behöver din hjälp, tack!
+
+مرحبًا! آسف لإزعاجك! أحتاج مساعدتك ، شكرا!
+
+سلام! ببخشید که مزاحم شدم! من به کمک شما نیاز دارم، متشکرم!
+
+שלום! סליחה שאני מפריע לך! אני צריך את עזרתכם, תודה!
+
+नमस्ते! आपको परेशान करने के लिए माफी चाहता हूं! मुझे आपकी मदद चाहिए, धन्यवाद!
+
+નમસ્તે! તમને પરેશાન કરવા બદલ હું દિલગીર છું! મને તમારી મદદની જરૂર છે, આભાર!
