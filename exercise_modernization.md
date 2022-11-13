@@ -71,3 +71,25 @@ I just use `Japanese`, `French`, `Swedish`, `Arabic`, `Persian`, `Hebrew`,
     תרגיל חם לשיעור חינוך גופני
     शारीरिक शिक्षा वर्ग के लिए गर्म व्यायाम
     શારીરિક શિક્ષણ વર્ગ માટે ગરમ કસરત
+
+### 1.7Warm exercise before physical education class
+
+    体育の授業前の温活
+    exercice chaud avant le cours d'éducation physique
+    varm träning innan fysisk träning
+    تمرين دافئ قبل حصة التربية البدنية
+    ورزش گرم قبل از کلاس تربیت بدنی
+    פעילות גופנית חמה לפני שיעור חינוך גופני
+    शारीरिक शिक्षा कक्षा से पहले गर्म व्यायाम
+    શારીરિક શિક્ષણ વર્ગ પહેલાં ગરમ કસરત
+
+### 1.8Physical education class warm-up exercise
+
+    体育授業準備運動
+    Exercice d'échauffement du cours d'éducation physique
+    Fysisk träningsklass uppvärmningsövning
+    تمرين الاحماء لفئة التربية البدنية
+    تمرین گرم کردن کلاس تربیت بدنی
+    תרגיל חימום בשיעור חינוך גופני
+    शारीरिक शिक्षा कक्षा वार्म-अप व्यायाम
+    શારીરિક શિક્ષણ વર્ગ ગરમ-અપ કસરત
