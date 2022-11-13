@@ -140,3 +140,17 @@ Hallå! Ledsen att jag stör dig! Jag behöver din hjälp, tack!
 नमस्ते! आपको परेशान करने के लिए माफी चाहता हूं! मुझे आपकी मदद चाहिए, धन्यवाद!
 
 નમસ્તે! તમને પરેશાન કરવા બદલ હું દિલગીર છું! મને તમારી મદદની જરૂર છે, આભાર!
+
+## 3.Or
+
+Make `turkish`, `uyghur`, `portuguese`, `spanish`, `Punjabi`, `Urdu`, `Telugu`
+
+words come true.
+
+    Merhaba! Sizi rahatsız ettiğim için özür dilerim! Yardımına ihtiyacım var, teşekkürler!
+    ياخشىمۇسىز! كەچۈرۈڭ! مەن سىزنىڭ ياردىمىڭىزگە موھتاج ، رەھمەت!
+    Olá! Desculpe incomodá-lo! Preciso de sua ajuda, obrigado!
+    ¡Hola! ¡Perdón por molestarte! Necesito su ayuda, gracias!
+    ਸਤ ਸ੍ਰੀ ਅਕਾਲ! ਤੁਹਾਨੂੰ ਤਕਲੀਫ਼ ਪਹੁੰਚਾਣ ਲਈ ਮੈਂ ਮਾਫ਼ੀ ਚਾਹੁੰਦਾ ਹਾਂ! ਮੈਨੂੰ ਤੁਹਾਡੀ ਮਦਦ ਦੀ ਲੋੜ ਹੈ, ਧੰਨਵਾਦ!
+    ہیلو! آپ کو پریشان کرنے کے لئے معافی! مجھے آپ کی مدد کی ضرورت ہے، شکریہ!
+    హలో! ఇబ్బంది పెడుతున్నందుకు క్షమించు! నాకు మీ సహాయం కావాలి, ధన్యవాదాలు!
