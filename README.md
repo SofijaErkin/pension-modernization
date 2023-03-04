@@ -374,7 +374,7 @@ courtesy of casazetajones via Instagram
 
 若作りがそのまま若さを作るということが、ある意味科学的に実証されたのだ。そこまでする意味があるかどうかは別として……。
 
-（参考文献：『ハーバード大学教授が語る「老い」に負けない生き方』（エレン・ランガー著）
+（参考文献：『ハーバード大学教授が語る[「老い」に負けない生き方』](https://www.amazon.com/daigaku-kyo%C3%8C-kataru-makenai-ikikata/dp/4757218923?ref_=ast_author_dp)（エレン・ランガー著）
 
 [You’re only as old as you feel](https://www.openculture.com/2018/10/youre-old-feel-research-harvard-psychologist-ellen-langer-shows-age-may-mindset.html).
 
