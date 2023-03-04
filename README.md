@@ -376,6 +376,15 @@ courtesy of casazetajones via Instagram
 
 （参考文献：『ハーバード大学教授が語る「老い」に負けない生き方』（エレン・ランガー著）
 
+[You’re only as old as you feel](https://www.openculture.com/2018/10/youre-old-feel-research-harvard-psychologist-ellen-langer-shows-age-may-mindset.html).
+
+[“世界一若く見える”５６歳イケメン男性にネット騒然！「２０代にしか見えない」超マッチョな肉体も話題
+](https://hochi.news/articles/20221130-OHT1T51132.html?page=1).
+
+[“世界一若く見える”イケメン男性が話題！「５６歳なんてありえない」超マッチョな自撮りが海外でも大反響](https://hochi.news/articles/20221026-OHT1T51020.html?page=1).
+
+[“世界一若く見える”イケメン男性が話題！「５６歳なんてありえない」超マッチョな自撮りが海外でも大反響](https://hochi.news/articles/20221026-OHT1T51020.html?mode=photo&photoid=1)
+
 ### 9.0Lola Pearce
 
 [Brain Tumour Research charity says EastEnders Lola story is important](https://news.yahoo.com/brain-tumour-research-charity-says-061258368.html?fr=sychp_catchall)(BBC News).
