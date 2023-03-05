@@ -154,3 +154,9 @@ words come true.
     ਸਤ ਸ੍ਰੀ ਅਕਾਲ! ਤੁਹਾਨੂੰ ਤਕਲੀਫ਼ ਪਹੁੰਚਾਣ ਲਈ ਮੈਂ ਮਾਫ਼ੀ ਚਾਹੁੰਦਾ ਹਾਂ! ਮੈਨੂੰ ਤੁਹਾਡੀ ਮਦਦ ਦੀ ਲੋੜ ਹੈ, ਧੰਨਵਾਦ!
     ہیلو! آپ کو پریشان کرنے کے لئے معافی! مجھے آپ کی مدد کی ضرورت ہے، شکریہ!
     హలో! ఇబ్బంది పెడుతున్నందుకు క్షమించు! నాకు మీ సహాయం కావాలి, ధన్యవాదాలు!
+
+## 4.Ideas
+
+### 4.1Walk
+
+[Just an hour of walking daily could help you live longer](https://www.japantimes.co.jp/news/2023/02/20/national/walking-longevity-study/).
