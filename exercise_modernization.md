@@ -158,6 +158,6 @@ words come true.
 
 [Resistance exercise changes gene expression in older adults to resemble that of people in their 20s(NIH)](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC1866181/).
 
-[Genes could be returned to a normal level of functioning in elderly people”(Body by Science, p. 247)](https://www.goodreads.com/book/show/4642174-body-by-science).
+[Genes could be returned to a normal level of functioning in elderly people(Body by Science, p. 247)](https://www.goodreads.com/book/show/4642174-body-by-science).
 
 [Resistance Exercise is the Fountain of Youth(Medium)](https://medium.com/@owenezell/push-ups-will-transform-your-upper-body-5884b36d5edf).
