@@ -124,26 +124,19 @@ Also, the same language!
 
 Hello! Sorry to bother you! I need your help, thanks!
 
-こんにちは！ お邪魔して申し訳ありません！ あなたの助けが必要です、ありがとう！
-
+    こんにちは！ お邪魔して申し訳ありません！ あなたの助けが必要です、ありがとう！
     Kon'nichiwa! O jama shite mōshiwakearimasen! Anata no tasuke ga hitsuyōdesu, arigatō!
-Bonjour! Désolé de vous déranger! J'ai besoin de votre aide, merci !
-
-Hallå! Ledsen att jag stör dig! Jag behöver din hjälp, tack!
-
-مرحبًا! آسف لإزعاجك! أحتاج مساعدتك ، شكرا!
-
-سلام! ببخشید که مزاحم شدم! من به کمک شما نیاز دارم، متشکرم!
-
-שלום! סליחה שאני מפריע לך! אני צריך את עזרתכם, תודה!
-
-नमस्ते! आपको परेशान करने के लिए माफी चाहता हूं! मुझे आपकी मदद चाहिए, धन्यवाद!
-
-નમસ્તે! તમને પરેશાન કરવા બદલ હું દિલગીર છું! મને તમારી મદદની જરૂર છે, આભાર!
+    Bonjour! Désolé de vous déranger! J'ai besoin de votre aide, merci !
+    Hallå! Ledsen att jag stör dig! Jag behöver din hjälp, tack!
+    مرحبًا! آسف لإزعاجك! أحتاج مساعدتك ، شكرا!
+    سلام! ببخشید که مزاحم شدم! من به کمک شما نیاز دارم، متشکرم!
+    שלום! סליחה שאני מפריע לך! אני צריך את עזרתכם, תודה!
+    नमस्ते! आपको परेशान करने के लिए माफी चाहता हूं! मुझे आपकी मदद चाहिए, धन्यवाद!
+    નમસ્તે! તમને પરેશાન કરવા બદલ હું દિલગીર છું! મને તમારી મદદની જરૂર છે, આભાર!
 
 ## 3.Or
 
-Make `turkish`, `uyghur`, `portuguese`, `spanish`, `Punjabi`, `Urdu`, `Telugu`
+Make `turkish`, `uighur`, `portuguese`, `spanish`, `Punjabi`, `Urdu`, `Telugu`
 
 words come true.
 
