@@ -438,3 +438,11 @@ PMSの軽減が期待できるそう。
 あなたがすることをみんながいつも応援してくれるわけではないけれど、自分が幸せになれることをしなくてはいけないの。
 
 何か素晴らしいことが始まったときに『この先どうなるんだろう？』なんて考えることはもうできない」。今年50歳の誕生日を迎えるハイディ。これからもそのセクシーな生き方を貫いてほしい。
+
+### 11.0Sophia Loren
+
+[Mediterranean Dietary Pattern and Prediction of All-Cause Mortality in a US Population(JAMA Internal Medicine)](https://jamanetwork.com/journals/jamainternalmedicine/fullarticle/770019).
+
+[Sophia Loren endorsed the classic Mediterranean diet(Elle Australia)](https://www.elle.com.au/health-fitness/celebrity-diets-12692).
+
+[Sophia Loren follows the classic Mediterranean diet(EatThis)](https://www.eatthis.com/sophia-loren-eating-habit/).
