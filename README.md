@@ -446,3 +446,13 @@ PMSの軽減が期待できるそう。
 [Sophia Loren endorsed the classic Mediterranean diet(Elle Australia)](https://www.elle.com.au/health-fitness/celebrity-diets-12692).
 
 [Sophia Loren follows the classic Mediterranean diet(EatThis)](https://www.eatthis.com/sophia-loren-eating-habit/).
+
+### 12.0華原朋美
+
+[79kg→50kgダイエット成功の華原朋美、血液・尿検査で“栄養不足”発覚「色々諸々反省です」](https://news.yahoo.co.jp/articles/7a75811013375e58dfc8a9a8ac6c1d4f1775dcde).
+
+華原は15日、「79キロあった体重から50キロを切ったり切らなかったりうろついてる状態です」「私は集中型タイプなので徹底的に短期間で痩せました」
+
+とダイエットで約30kg減量したことを報告。続けて「最近になってなんだか身体が疲れやすくなっちゃって困ってしまい、ちょっと血液検査と尿検査をしてきました」
+
+と明かしていた。
