@@ -456,3 +456,9 @@ PMSの軽減が期待できるそう。
 とダイエットで約30kg減量したことを報告。続けて「最近になってなんだか身体が疲れやすくなっちゃって困ってしまい、ちょっと血液検査と尿検査をしてきました」
 
 と明かしていた。
+
+### 13.0Yano Shiho
+
+[The Interview of Yano Shiho(Marie Claire December 2015)](https://thesunnytown.wordpress.com/2015/12/05/december-2015-marie-claire-yano-shiho-interview/).
+
+[The 8 beauty developments of Yano Shiho(Vogue Taiwan(Chinese))](https://www.vogue.com.tw/beauty/article/%E7%9F%A2%E9%87%8E%E5%BF%97%E4%BF%9D-%E7%BE%8E%E8%B2%8C%E9%A4%8A%E6%88%90).
