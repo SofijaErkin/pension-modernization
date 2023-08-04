@@ -462,3 +462,41 @@ PMSの軽減が期待できるそう。
 [The Interview of Yano Shiho(Marie Claire December 2015)](https://thesunnytown.wordpress.com/2015/12/05/december-2015-marie-claire-yano-shiho-interview/).
 
 [The 8 beauty developments of Yano Shiho(Vogue Taiwan(Chinese))](https://www.vogue.com.tw/beauty/article/%E7%9F%A2%E9%87%8E%E5%BF%97%E4%BF%9D-%E7%BE%8E%E8%B2%8C%E9%A4%8A%E6%88%90).
+
+### 14.Uno Kanda(神田うの)
+
+[神田うの　インスタ投稿「衝撃の1枚」に込められた不倫相手と夫へのメッセージを心理士が分析](https://news.yahoo.co.jp/articles/c0bdc37982a507f7061c82eeba98b224fabcc3d1?page=1).
+
+コメントには「昨年パパさんがプレゼントしてくれたお気に入りのTシャツとスニーカーを履いて4年ぶりの隅田川花火、
+みんなで盛り上がりました」とある。うのさんが着ていたのはルイ・ヴィトンのTシャツにブラック系のスキニーパンツ。
+黒のキャップをかぶり、肩からルイ・ヴィトンのミニバッグをかけ、白のスニーカーを履いていた。
+すらりとした体型によく似合うファッションだ。
+
+うのさんが腕を回しているのは西村氏の肩の上。肩から首の周りにかけて腕を回している格好だ。
+身体を西村氏に預けるように、ゆったりした手の回し方がうのさんらしく優雅だ。
+対してA子さんが手を回しているのは西村氏の肩口。その手で彼をしっかりと抱え込んでいるといった印象だ。
+
+このように相手に触ったり、相手の身体に手を添えたり、肩に腕を回すというのは、
+この人は自分のものだという所有意識の表れであると、ボディランゲージの専門家アラン・ビアーズとバーバラ・
+ビアーズはその著書『本音は顔に書いてある　＜言葉の嘘＞と＜しぐさの本音＞の見分け方』（主婦の友社）で書いている。
+
+うのさんの写真からは、西村氏が不倫をしようと夫はわたしのものというメッセージとともに、
+首根っこを捕まえているのは私という夫婦関係における余裕すら感じさせる。
+
+A子さんの写真からもこの人は私のものという所有意識は伝わってくるが、
+同時にこの人を離したくないという思いも伝わってくる。
+
+さらにうのさんの写真では、西村氏の肩に回している左手の甲がしっかりと正面を向き、
+左手薬指にはめている指輪を見せている。そのため私が本妻であなたは愛人、離婚する気はないし、家庭は円満。
+
+[神田うの公式インスタグラムより](https://news.yahoo.co.jp/articles/c0bdc37982a507f7061c82eeba98b224fabcc3d1/images/000).
+
+[【写真31枚】再現度が高い！　神田うのとA子さんの画像比較](https://www.news-postseven.com/archives/20230804_1893328.html?IMG_ENT&utm_source=news.yahoo.co.jp&utm_medium=referral&utm_campaign=imagepage_link).
+
+[（神田うの公式インスタグラムより）（NEWSポストセブン）](https://news.yahoo.co.jp/articles/c0bdc37982a507f7061c82eeba98b224fabcc3d1/images/000).
+
+[神田うののインスタグラム（＠ｕｎｏｋａｎｄａｏｆｆｉｃｉａｌ）より（報知新聞社）](https://news.yahoo.co.jp/articles/885e3a32f5d73c3effc7c0f01fbda213a5541ac3/images/000).
+
+[神田うののインスタグラムから（Nikkan Sports News）](https://news.yahoo.co.jp/articles/6f846f4c21a4624f840b2c87eaac8178bc18c23e/images/000).
+
+[西村拓郎氏とハグする神田うの【写真：インスタグラム（＠unokandaofficial）より】（インスタグラム（＠unokandaofficial）より）](https://news.yahoo.co.jp/articles/674dd920300e84acaec7a5e80d5d20c3ad5f5eb7/images/000).
