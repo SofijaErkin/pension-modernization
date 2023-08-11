@@ -525,3 +525,34 @@ A子さんの写真からもこの人は私のものという所有意識は伝�
 ただし、体毛の成長と長さは個人によって異なるため、基本的な特徴は簡単な方法で変えることはできません。
 体毛の成長に特に関心や質問がある場合は、
 皮膚科医や医師に相談して個別のアドバイスや指導を受けることをおすすめします。
+
+(ENGLISH VERSION)
+
+The growth rate and length of body hair are primarily determined by genetics
+and individual physiological characteristics, and they may vary from person
+to person. However, there are some methods that can promote the growth and
+maintenance of body hair:
+
+Good nutrition: Ensure that your diet is balanced and provides an adequate
+amount of nutrients, especially protein, vitamins, and minerals. These
+nutrients are crucial for the growth of hair and body hair.
+
+Healthy lifestyle: Maintain a healthy lifestyle, including sufficient sleep,
+moderate exercise, and stress reduction. These factors contribute to overall
+body health, which can also benefit hair growth.
+
+Proper care: Choose care products that are suitable for your skin and hair
+type, and make sure to keep the scalp and body clean. Regularly massaging
+the scalp and body can promote blood circulation, which can help with hair
+growth.
+
+Avoid excessive styling: Excessive use of heat tools, chemical products, and
+frequent hair dyeing can damage the hair and affect its growth and health.
+Try to minimize these treatments and give the hair enough rest and recovery
+time.
+
+It is important to note that everyone's hair growth and length are different,
+and their basic characteristics cannot be easily changed through simple
+methods. If you have specific concerns or questions about hair growth, it is
+recommended to consult a dermatologist or doctor for personalized advice and
+guidance.
