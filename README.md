@@ -556,3 +556,34 @@ and their basic characteristics cannot be easily changed through simple
 methods. If you have specific concerns or questions about hair growth, it is
 recommended to consult a dermatologist or doctor for personalized advice and
 guidance.
+
+### 16.「心筋梗塞」myocardial infarctions
+
+[「心筋梗塞」が少ない「日本人」、じつは「2つの食材」を食べていたからだった…！(Yahoo)](https://news.yahoo.co.jp/articles/12f80597b5824cf0b8e9d205cafa59b08f900ce2).
+
+日本人の血管を守る魚と大豆の力
+日本人が動脈硬化を起こしにくい原因の一つと考えられてきたのが、善玉HDLが多いことです。
+
+善玉HDLは、あまったコレステロールだけでなく、酸化LDLも引き抜いて肝臓に運んでくれます。
+
+悪玉LDLを酸化されにくくする作用や、血管の内側の細胞を守る作用も報告されており、
+
+心筋梗塞に関しては、悪玉LDLが多いことより善玉HDLが少ないことのほうが問題と考えられています。
+
+これからは日本人も善玉HDLが減って動脈硬化になり、心臓病が増えるのではないかと予想する専門家もいました。
+
+悪玉LDLバスには、コレステロールの他に脂肪酸がお客さんとして乗っています。
+脂肪酸はどんな脂質にも入っている成分で、大きく不飽和脂肪酸と飽和脂肪酸に分けられます。
+
+そして、この脂肪酸の種類によって悪玉LDLバス全体の酸化されやすさが決まるのです。
+
+悪玉LDLバスに乗っている脂肪酸は、通常はリノール酸やアラキドン酸に代表される不飽和脂肪酸です。
+
+不飽和脂肪酸はとても酸化されやすく、不飽和脂肪酸が酸化されると、悪玉LDLバス全体が酸化されて酸化LDLになり、
+動脈硬化を起こすと考えられています。
+
+日本人の悪玉LDLバスには、同じ不飽和脂肪酸でも、動脈硬化をむしろ防ぐEPA(エイコサペンタエン酸)、
+DHA(ドコサヘキサエン酸)が多く乗っていることが明らかになりました。
+
+EPAもDHAも不飽和脂肪酸なので、酸化はします。ところが、EPAとDHAは水中では酸化されにくく、
+それどころか他の脂肪酸の酸化を防いでくれることがわかりました。
